@@ -1,3 +1,1 @@
-![image alt](https://cdn.discordapp.com/attachments/1471872523280056553/1533608487798440136/Untitled391_20260803045224.png?ex=6a711bb4&is=6a6fca34&hm=c4ba559ce888188f2ef95c05f05017906ade80d4dfc98b8494d647504eb2c4d8&)
- 
-wip Hi
+wip : )

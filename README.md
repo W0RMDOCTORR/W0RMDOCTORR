@@ -4,5 +4,5 @@
 
 $${\color{#6D7790}Tell \ him \ his \ suit \ is \ Clubs."}$$
 
-![image alt](https://cdn.discordapp.com/attachments/1471872523280056553/1546154063622709288/IMG_20260906_194350.png?ex=6a9ebfae&is=6a9d6e2e&hm=044ec495c7413531a3dce23ac71365880a1d81ac6095bf9b0e51932e7a126099&)
+![image alt](https://cdn.discordapp.com/attachments/1471872523280056553/1546154866991169656/Untitled443_20260906194714.png?ex=6a9ec06e&is=6a9d6eee&hm=1f122eca5024cb405b93d8c77c16d4cfeb5214fc866bead69b64dc92e652661e&)
 ![image alt](https://cdn.discordapp.com/attachments/1471872523280056553/1545919572824031374/IMG_20260906_040701.png?ex=6a9de54b&is=6a9c93cb&hm=ea64923633f585761dcdefbe3c57b889baa54f38386a796587879102b56ddbda&)
